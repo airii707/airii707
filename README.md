@@ -1,14 +1,14 @@
 <p align="center">
-<img src="https://i.postimg.cc/Nfq7Cv2S/IMG-7375.png"/>
 </p>
 
+</p>
 <p align="center">
 <img src="https://files.catbox.moe/60gmjq.png"/>
 <img src="https://files.catbox.moe/rboibz.png"/>
 </p>
 <div align="center">
-toge: ur my spaghetti bolognese,,, my sexy tuna casserole
-<div align="center">yuuta, in tears: i have Feelings for you
+woof woof
+</p>
 <div align="center">
   
 [strawpage](https://airii707.straw.page) 
