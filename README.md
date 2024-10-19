@@ -16,7 +16,7 @@
 
 woof woof
   
-[strawpage](https://airii707.straw.page)  [rentry](https://rentry.co/airii_707) [atabook](airi.atabook.org)
+[strawpage](https://airii707.straw.page)  [rentry](https://rentry.co/airii_707) [atabook](airi.atabook.org) [guns](https://guns.lol/airii)
 
 
 ![](https://komarev.com/ghpvc/?username=airii707&color=393939&style=flat-square&label=ꔫ)
