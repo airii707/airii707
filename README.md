@@ -13,14 +13,10 @@
 </p>
 
 </p>
-<p align="center">
-<img src="https://files.catbox.moe/60gmjq.png"/>
-<img src="https://files.catbox.moe/rboibz.png"/>
-</p>
-<div align="center">
+
 woof woof
   
-[strawpage](https://airii707.straw.page)  [rentry](https://rentry.co/airii_707)
+[strawpage](https://airii707.straw.page)  [rentry](https://rentry.co/airii_707) [atabook](airi.atabook.org)
 
 
 ![](https://komarev.com/ghpvc/?username=airii707&color=393939&style=flat-square&label=ꔫ)
