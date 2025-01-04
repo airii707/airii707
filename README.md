@@ -20,3 +20,5 @@ woof woof
 
 
 ![](https://komarev.com/ghpvc/?username=airii707&color=393939&style=flat-square&label=ꔫ)
+
+<img src="https://files.catbox.moe/u7sc8e.png"/> <img src="https://files.catbox.moe/ergih6.png"/>
