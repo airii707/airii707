@@ -2,24 +2,19 @@
 </p>
 <div align="center">
 <p align="center">
-
+<a href="https://pokemondb.net/pokedex/lugia"><img src="https://files.catbox.moe/8e9fr8.gif" alt="N"></a>
   <p align="center">
-<img src="https://files.catbox.moe/9xiysv.png"/>
-    <p aling="center">
-<img src="https://files.catbox.moe/95xsgh.png"/>
-<img src="https://files.catbox.moe/riavmv.png"/>
-<p align="center">
-  <img src="https://64.media.tumblr.com/ac8cce14c87310e589db0c27e108ccba/99a88c92001834bd-8d/s1280x1920/18677fd537aede40f0f8fe185c6e34d253369b85.png"/>
-</p>
+
 
 </p>
 
-woof woof
+<a href="https://pokemondb.net/pokedex/lugia"><img src="https://biscuit.crd.co/assets/images/gallery88/ad866746.gif?v=cc1c6dfa" alt="N"></a>
+
   
 [strawpage](https://thurdayschild.straw.page)  [rentry](https://rentry.co/airii_707) [atabook](https://airi.atabook.org/?page=1) [guns](https://guns.lol/airii)
 
 
 ![](https://komarev.com/ghpvc/?username=airii707&color=393939&style=flat-square&label=ꔫ)
 
-<img src="https://files.catbox.moe/u7sc8e.png"/> <img src="https://files.catbox.moe/ergih6.png"/>
-![Alt Text](https://files.catbox.moe/2sm5ih.gif)
+
+
