@@ -2,7 +2,7 @@
 </p>
 <div align="center">
 <p align="center">
-<a href="https://pokemondb.net/pokedex/lugia"><img src="https://files.catbox.moe/8e9fr8.gif" alt="N"></a>
+
   <p align="center">
 
 
@@ -18,3 +18,4 @@
 
 
 
+<a href="https://pokemondb.net/pokedex/lugia"><img src="https://files.catbox.moe/8e9fr8.gif" alt="N"></a>
