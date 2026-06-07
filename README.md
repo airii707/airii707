@@ -14,7 +14,7 @@
 
   
   
-[strawpage](https://thurdayschild.straw.page)  [atabook](https://airi.atabook.org/?page=1) [walloftext](https://walloftext.co/airi)
+[strawpage](https://lovingthealien.straw.page)  [atabook](https://airi.atabook.org/?page=1) [walloftext](https://walloftext.co/airi)
 
 
 ![](https://komarev.com/ghpvc/?username=airii707&color=393939&style=flat-square&label=ꔫ)
